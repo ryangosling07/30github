@@ -1,3 +1,3 @@
 clas vgfdhfdhgfhxgfh
 hgfhgfhj,gmf,j
-gjgflm,hl;, void main vdfbvfdbndghnd
+gjgflm,hl;, void main vdfbvfdbndghndвквпав
